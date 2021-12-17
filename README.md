@@ -1,1 +1,1 @@
-# principles-of-virtual-philosophy
+# principles-of-the-virtual-philosophy
